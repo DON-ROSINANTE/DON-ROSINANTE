@@ -1,5 +1,4 @@
 # 
-<div align="centre">
   
 <img width="400" height="525" alt="image" src="https://static.wikia.nocookie.net/teppen/images/5/51/Albert_Wesker.png/revision/latest?cb=20191026091748" /> 
 
