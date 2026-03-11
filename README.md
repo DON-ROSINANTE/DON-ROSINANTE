@@ -1,6 +1,6 @@
 # 
 
-<img width="1000" height="525" alt="image" src="https://github.com/user-attachments/assets/2ddd273e-7ec7-4c1f-9bbc-4e60d6efc275" /> 
+<img width="1000" height="525" alt="image" src="[https://github.com/user-attachments/assets/2ddd273e-7ec7-4c1f-9bbc-4e60d6efc275](https://static.wikia.nocookie.net/teppen/images/5/51/Albert_Wesker.png/revision/latest?cb=20191026091748)" /> 
 
 <div align="center">
 
