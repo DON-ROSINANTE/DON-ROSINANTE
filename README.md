@@ -8,7 +8,7 @@
 [strawpage](https://rainbowinthedark.straw.page/)  |
 [Atabook](https://donrosinante.atabook.org/)  |
 [Pronounspage](https://en.pronouns.page/@DINOSAURBRANDO)  |
-[Rentry](https://rentry.co/dinosaurbrando)  
+[Rentry](https://rentry.co/dinosaurbrando)
 ── ⋅ ⋅ ──╯
 
 ✩
