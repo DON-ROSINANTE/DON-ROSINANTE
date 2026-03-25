@@ -7,7 +7,7 @@
 <div align="center">
 
 ╰── ⋅ ⋅ ── 
-[strawpage](https://rainbowinthedark.straw.page/)  |
+[strawpage]([https://puppyleon.straw.page/])  |
 [Atabook](https://donrosinante.atabook.org/)  |
 [Pronounspage](https://en.pronouns.page/@DINOSAURBRANDO)  |
 [Rentry](https://rentry.co/dinosaurbrando)
