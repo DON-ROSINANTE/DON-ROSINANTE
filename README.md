@@ -8,7 +8,7 @@
 
 ╰── ⋅ ⋅ ── 
 [strawpage](https://puppyleon.straw.page/)  |
-[Atabook](https://donrosinante.atabook.org/)  |
+[Atabook](https://donrosinante.atabook.org/)
 ── ⋅ ⋅ ──╯
 
 ✩
