@@ -15,4 +15,4 @@
 
 ✩
 
-dni jonadio fans pls and thank u  ＞︿＜
+dni lawlu and ANY ships between law,doffy and cora.
