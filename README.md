@@ -2,7 +2,7 @@
 
 <div align="center">
   
-<img width="400" height="300" alt="image" src="https://files.catbox.moe/u9quh3.jpeg" /> 
+<img width="600" height="500" alt="image" src="https://files.catbox.moe/u9quh3.jpeg" /> 
 
 <div align="center">
 
