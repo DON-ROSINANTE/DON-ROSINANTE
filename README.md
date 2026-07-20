@@ -7,7 +7,7 @@
 <div align="center">
 
 ╰── ⋅ ⋅
-[strawpage](https://puppyleon.straw.page/)  |
+[strawpage]([https://donquibros.straw.page/)  |
 [Atabook](https://donrosinante.atabook.org/)
 ⋅ ⋅ ──╯
 
